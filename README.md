@@ -63,7 +63,7 @@ We will update this policy if any changes are made to data handling practices. U
 Contact
 For privacy concerns, contact us at:
 
-[wushumaster75gmail.com]
+[wushumaster75@gmail.com]
 
 Last updated: February 09, 2025
 
